@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ClvrrCleaver
+- 👀 I’m interested in Friday Night Funkin' and Celeste mostly
+- 🌱 I’m currently learning to make music (for 5 years)
+- 💞️ I’m looking to collaborate on anything! If you want music made for something just hit me up and we can discuss
+- 📫 How to reach me: https://linktr.ee/clvrrjamesreed
+- 😄 Pronouns: Any
+- ⚡ Fun fact: Chedder Cheese™
